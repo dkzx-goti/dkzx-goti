@@ -1,4 +1,4 @@
-## Salve galerinha, me chamo deriky sou estudande do primeiro ano🤟
+## Salve galerinha, me chamo deriky sou estudande do segundo ano🤟
 
 <!--
 **dkzx-goti/dkzx-goti** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
